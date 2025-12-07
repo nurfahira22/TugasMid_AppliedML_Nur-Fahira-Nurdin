@@ -1,0 +1,1 @@
+# TugasMid_AppliedML_Nur-Fahira-Nurdin
